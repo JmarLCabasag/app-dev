@@ -46,8 +46,8 @@ A mastermind called **The Professor** recruits eight criminals to carry out the 
 - Nairobi
 - Rio  
 
-### 💭 Why I Love These Series
+###  Why I Love These Series
 All three shows have:
-- Strong characters 💪  
-- Emotional storylines ❤️  
-- Intense suspense 😱  
+- Strong characters   
+- Emotional storylines  
+- Intense suspense  
